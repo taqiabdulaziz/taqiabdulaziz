@@ -4,6 +4,3 @@
 </a>
 
 
-Hire me pls:
- - LinkedIn: [Muhammad Taqi Abdul Aziz](https://www.linkedin.com/in/muhammad-taqi-a-92002589/)
-
